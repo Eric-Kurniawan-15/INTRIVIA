@@ -13,3 +13,6 @@ Overall JOSJIS REK.
 ## Kesan Pesan Cluster 12 Sejauh Ini 
 Untuk cluster 12 menurut saya orang nya asik asik dan lucu.
 Untuk Kak Rehan dan Kak Laras the best lah, sehat sehat kak saya menantikan traktiran tahu telor nya. 
+
+## Harapan Kuliah 
+Harapan saya semasa kuliah yaitu dapat mengembangkan soft skill dan hard skill saya, dan mendapatkan banyak teman baru dan banyak relasi.
